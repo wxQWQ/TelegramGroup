@@ -67,6 +67,7 @@
 *   Telegram 十万人群:[https://t.me/yxbjx](https://t.me/yxbjx)
 *   Telegram 中文圈:[https://t.me/tgzhcn](https://t.me/tgzhcn)
 *   Telegram 超级搜索🔥超级搜索🔥搜片神器🔥中文搜索🔥TG 神器🔥中文群组🔥:[https://t.me/chaojisoso520](https://t.me/chaojisoso520)
+*   Telegram 全网直播回放🔥抖音🔥斗鱼🔥虎牙🔥B站🔥等等🔥:[https://t.me/luzhiob](https://t.me/luzhiob)
 
 ### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
 
